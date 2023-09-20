@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BushwaTheGoat
 - 👀 I’m interested in coats
 - 🌱 I’m currently learning to read tracks
-- 💞️ I’m looking to collaborate talking bushwa
+- 💞️ I’m looking for collaborative bushwa
 - 📫 You can reach me by foot or by hoof
 
 <!---
